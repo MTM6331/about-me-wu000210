@@ -1,2 +1,2 @@
-I had a lot of trip, and it was wonderful. 
+I had a lot of trips, and it was wonderful. 
 Riqin Wu
